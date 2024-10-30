@@ -1,1 +1,1 @@
-# BradyHarkleroad-Bachelor-s-Degree
+# BradyHarkleroad-Bachelors-Degree
